@@ -3,6 +3,11 @@
 Este projeto tem como objetivo explorar como a moda contemporânea reflete e dialoga com o tempo  — tanto no sentido histórico (ciclos e ressignificações) quanto na temporalidade acelerada das tendências atuais. 
 
 CURADORIA DE FONTES:
+# https://notebooklm.google.com/notebook/035d932f-2cea-43d0-a024-260b5b17a131/artifact/5be768a3-0b33-4b5c-b0a5-279caef49179?utm_source=nlm_web_share&utm_medium=google_oo&utm_campaign=art_share_2&utm_content=&utm_smc=nlm_web_share_google_oo_art_share_2_ #
+
+# https://notebooklm.google.com/notebook/035d932f-2cea-43d0-a024-260b5b17a131/artifact/4d1dff5f-7f19-4af4-9579-8196376ecc77?utm_source=nlm_web_share&utm_medium=google_oo&utm_campaign=art_share_2&utm_content=&utm_smc=nlm_web_share_google_oo_art_share_2_ #
+
+## https://notebooklm.google.com/notebook/035d932f-2cea-43d0-a024-260b5b17a131/artifact/76fd5b15-6ccd-4641-a384-cd7fc93e5c80?utm_source=nlm_web_share&utm_medium=google_oo&utm_campaign=art_share_2&utm_content=&utm_smc=nlm_web_share_google_oo_art_share_2_ ##
 
 Artigo da Vogue Brasil sobre moda sustentável
 Relatório da McKinsey sobre o futuro da moda
